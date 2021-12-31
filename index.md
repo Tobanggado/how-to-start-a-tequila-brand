@@ -1,37 +1,22 @@
-## Welcome to GitHub Pages
+<h1>How To Start A Tequila Brand</h1>
 
-You can use the [editor on GitHub](https://github.com/Tobanggado/how-to-start-a-tequila-brand/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+<div id="toc" style="background: #f9f9f9;border: 1px solid #aaa;display: table;margin-bottom: 1em;padding: 1em;width: 350px;"><p class="toctitle" style="font-weight: 700;text-align: center;">Content</p><ul class="toc_list"><li><a href="#toc-0">Compoveda Reposado</a></li><li><a href="#toc-1">Extracting The Candy Agave Juices</a></li><li><a href="#toc-2">Mexican</a></li><li><a href="#toc-3">What Kinds Tequila Are There?</a></li><li><a href="#toc-5">Tequila Espinoza</a></li><li><a href="#toc-7">Blanco</a></li><li><a href="#toc-8">Tequila Manufacturers Owned By Celebrities: See Labels From Dwayne Johnson, Nick Jonas And Extra</a></li></ul></div>
+<p>The Tequila has a surprising nostril of sugared pineapple surrounded by brilliant agave freshness and lime zest. The mouthfeel is rich, with floral and delicate fruit notes picked up from its time in the French oak wine barrels. The finish is mineral driven and dry, but the roundness of the growing older course of is felt in the delicate sweetness on the palate. Joven or gold tequila is unaged tequila that's usually coloured and flavored with caramel, oak extracts, or syrups. Basically, you can use a Blanco tequila and add in an extract to attain the gold or caramel coloring. At this stage, you’ll discover the solvent odor of acetone taper off and get replaced by a sweet-smelling ethanol.</p>
+<ul><li>Tequila should have between 35 and 55 % alcohol content material (70 and one hundred ten U.S. proof).</li><li>In order for a spirit to be called “tequila,” it must be registered in Mexico and classified with a Denomination of Origin.</li><li>The entry of premium tequila into the country is expected to increase tequila exports by 20 p.c within a decade .</li></ul>
+<p>Tequila is obtainable in an abundant array of colours that ranges from a easy clear distilled beverage to a darkish amber brown. The colour of the tequila varies significantly depending on the aging process and the kind of wooden used for storage. The white model of tequila, generally recognized as silver tequila or blanco, is the product obtained without a growing older process. As properly, the spirit should include 38–55% alcohol content, which is fermented from a wort that contains no less than 51% sugars from the agave plant. Silver/Blanco tequila provides the purest kind as little growing older has occurred. Rested or aged tequila (añejo) is aged in wood containers.</p>
+<h2 id="toc-0">Compoveda Reposado</h2>
+<p>She is a master distiller who has created profiles for an extended record of tequila manufacturers. She is called an expert in sensorial detection, and has trained many people within the trade on the way to determine the big selection of aromas and flavors present in tequila. The geographical origin is what distinguishes the spirit from all the opposite agave-based liqueurs produced throughout the world.</p>
+<div itemScope itemProp="mainEntity" itemType="https://schema.org/Question">  <div itemProp="name"><h2>How a lot does a distiller make?</h2></div>  <div itemScope itemProp="acceptedAnswer" itemType="https://schema.org/Answer">      <div itemProp="text"><p>Salary Ranges for Distillers<br><br> The salaries of Distillers within the US vary from $23,150 to $62,650 , with a median salary of $38,420 . The middle 60% of Distillers makes $38,420, with the highest 80% making $62,650.</p></div>  </div></div>
+<p>Returning to Tequila for the primary time a couple of months ago, Gonzalez was shocked by the variety of tourists packing the city heart with their outsized tequila cocktails — and the town’s seeming prosperity. Pre-Hispanic Indigenous teams in Mexico had been fermenting agave into a viscous alcoholic drink generally known as pulque for hundreds of years when Spanish conquistadors arrived in the sixteenth century and first distilled tequila. “Bottles up, maintain ‘em high,” the rappers belted before name-checking Avion as well as DeLeon — a tequila brand that happens to be owned in part by Diddy. The increase is seen right here, a metropolis where the slim, cobblestone streets are jammed with vacationers and seemingly each distillery is undergoing an expansion. In the encompassing hills, blue agave, tequila’s major ingredient, is promoting for record prices.</p>
+<h3 id="toc-1">Extracting The Candy Agave Juices</h3>
+<p>There are quite a number of methods to go about growing older your tequila. Aging breaks down into three fundamental home windows of time, but there are roughly 5 various kinds of tequila. Each of those types has its own look and flavor profiles primarily based on the period of time the spirit is aged. Like we talked about earlier than, to find a way to produce pure tequila, you’ll need to make use of the Blue Weber Agave plant to create your wash. Fortunately, you can find Blue Agave nectar in most grocery stores or on-line so that you won’t essentially need to reap the actual agave plant to create the mash in your fermentation. For the purpose of this guide, we’ll just be using Blue Agave Nectar to cut down on the processing time.</p>
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+<p>If you want to be alerted about tequila tasting events in your area, get your name on our list! Fun occasions, cool people, and really great tequilas are near. I’m not often intrigued by blogs but this subject was a must learn.</p>
+<h3 id="toc-2">Mexican</h3>
+<p>The simple way to find this out is to do a tequila NOM search on Tequila Matchmaker, and drill down into every of the manufacturers and merchandise from that distillery. Which distilleries are capable of producing the flavour profile you have an interest in? You can start your research by scanning through our tequila distillery rankings to get an thought of the general high quality of the tequila they're producing, primarily based on scores from Tequila Matchmaker app users. Is a tequila that is aged for a minimal of two months, but not than 364 days.</p>
+<div style='text-align:center'><iframe width='561' height='319' src='https://www.youtube.com/embed/dmAZ0aH0P9o' frameborder='0' alt='how to start a tequila brand' allowfullscreen></iframe></div>
+<p>Available in Plata, Reposado, Añejo, Extra Añejo, Añejo Single Barrel, and Extra Añejo Single Barrel. Blanco tequila is a transparent spirit that isn’t essentially utterly colorless and is diluted with water, to the right bottling ABV. To be thought-about a Blanco or silver tequila, you'll have the ability to mature or age the spirit in oak barrels for zero to 2 months. If you age your Blanco tequila for more than two months, will probably be thought of a Reposado tequila.</p>
+<h2 id="toc-3">What Kinds Tequila Are There?</h2>
+<p>Cao and his spouse's uncle would get into consuming contests. "I realized not to just like the style of tequila after that," says Cao. In order for a spirit to be referred to as “tequila,” it have to be registered in Mexico and categorised with a Denomination of Origin. This authorization course of is usually prolonged and concerned. Many particulars are necessary and steps must be taken within the appropriate order to ensure you don’t waste time or sources. Integrated beverage builders can present oversight in all of these areas, as opposed to a distillery which is in a position to keep you determining all these steps largely by yourself. [newline]Furthermore, an built-in beverage developer may have a transparent plan of action prepared, instead of handing you a bundle of catalogues and choices and leaving you to determine everything for your self.</p>
 
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/Tobanggado/how-to-start-a-tequila-brand/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+<p>The arrival happened throughout an occasion held at the House of Roosevelt, a well known membership located on The Bund– an area with a protracted tradition of importing alcoholic beverages in China. This is arguably the most important step in the tequila-making course of. Aging is done in whiskey or bourbon barrels, which helps to add distinctive flavors to the tequila. It can be what gives the aged tequila its golden or caramel colour. The growing older process will depend on the type of tequila that is being made.</p>
